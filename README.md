@@ -1,0 +1,2 @@
+# premium-aqua-soil-001-aquatic-soil-substrate-plant
+Drowning in scattered notes about substrate ratios, root development stages, and plant compatibility? Stop guessing which soil composition works best for your aquatic ecosystem.  The Aquatic Soil Substrate &amp; Plant Root Craft Hub consolidates every variable you need to design thriving aquatic environments in one centralized Notion workspace. This is
